@@ -1,4 +1,4 @@
-### Hi there, I'm Michele.👋
+### Hi there, I am Michele.👋
 - 🤔 Curious about everything 
 
 <!--
